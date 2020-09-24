@@ -4,8 +4,8 @@
 
 _Personal_
 *  Steam 🎮 **[Atakashi2000](https://learnwithportals.com/profiles/76561198205806764)** :v:
-*  Instagram 📷**[nestorf.garcia](https://www.instagram.com/nestorf.garcia)** :v:
-*  Facebook 👥**[Néstor F. García](https://www.facebook.com/nestorantonio.floresgarcia/)** :v:
+*  Instagram 📷 **[nestorf.garcia](https://www.instagram.com/nestorf.garcia)** :v:
+*  Facebook 👥 **[Néstor F. García](https://www.facebook.com/nestorantonio.floresgarcia/)** :v:
 
 _"No quiero creer, quiero saber."_
  _-Carl Sagan_
