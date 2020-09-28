@@ -3,6 +3,8 @@
 
 ## Hola :3 Soy Néstor Flores 💻, Guerrerense de corazón 🐯, Estudiante del IPN ❤️, Gamer 🎮, Catador de Bebidas Fuertes 🍺, Cat lover 🐱, etc.
 
+![Nestor's github stats](https://github-readme-stats.vercel.app/api?username=Atakashi2000&show_icons=true&theme=tokyonight)
+
 _Personal:_
 *  Steam 🎮 **[Atakashi2000](https://learnwithportals.com/profiles/76561198205806764)** :v:
 *  Instagram 📷 **[nestorf.garcia](https://www.instagram.com/nestorf.garcia)** :v:
